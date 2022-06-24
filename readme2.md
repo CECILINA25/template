@@ -3,14 +3,16 @@
 *Ejemplo numero 1*
 ### Holanda
 Los Países Bajos son un país del noroeste europeo conocido por su paisaje plano de canales, campos de tulipanes, molinos y ciclovías. Ámsterdam, la capital, alberga el museo Rijksmuseum, el Museo van Gogh y la casa donde la joven judía Anna Frank se escondió y escribió su diario durante la Segunda Guerra Mundial. Las mansiones junto a los canales y un tesoro de obras de artistas, como Rembrandt y Vermeer, permanecen desde la "Edad de Oro" de la ciudad en el siglo XVII.
-
+![](https://images.ecestaticos.com/BlRtC4oYcioOitzwqZCF046UsVI=/284x0:1987x1276/557x418/filters:fill(white):format(jpg)/f.elconfidencial.com%2Foriginal%2F3ed%2Ff85%2Fb73%2F3edf85b732c5185f12b4811f2ca4eb12.jpg)
 ### Rusia
 usia (en ruso, Росси́я, romanización Rossíya),n. 1​ conocida formalmenten. 2​ como Federación de Rusian. 1​ (en ruso, Росси́йская Федера́ция, romanización Rossíyskaya Federátsiya) y también citada en ocasiones como Federación Rusa, es un vasto país que se extiende sobre Europa del Este y Asia del Norte.n. 3​ Es el país más extenso del mundo, con una superficie de 17 125 191 km²,2​ equivalente a algo más de la novena parte de la tierra firme del planeta, y posee una gran variedad de relieve y de ecosistemas. Su capital es la ciudad federal de Moscú.
-
+![](https://www.anahuac.mx/generacion-anahuac/sites/default/files/articles/restaurantes_rusos.jpeg)
 ### Italia
 Italia (en italiano, Italia, pronunciado /i'talja/ ( escuchar)), oficialmente la República Italiana (en italiano, Repubblica Italiana pronunciado /re'pub:lika ita'ljana/), es un país soberano transcontinental, miembro y fundador de la Unión Europea, constituido en una república parlamentaria compuesta por veinte regiones, integradas estas, a su vez, por 110 provincias.8​
 
 Italia se ubica en el centro del mar Mediterráneo, en Europa meridional. Ocupa la península itálica, así como la llanura Padana, las islas de Sicilia y Cerdeña y alrededor de ochocientas islas menores, entre las que se destacan las islas Tremiti en el mar Adriático, los archipiélagos Campano y Toscano en el mar Tirreno, o las islas Pelagias en África septentrional, entre otras. En el norte, está rodeada por los Alpes y tiene frontera con Francia, Suiza, Austria y Eslovenia. Los micro-Estados de San Marino y Ciudad del Vaticano son enclaves dentro del territorio italiano. A su vez, Campione d'Italia, es un municipio que forma un pequeño exclave italiano en territorio suizo.
+![](https://www.ceoe.es/sites/ceoe-corporativo/files/styles/image_1200/public/content/image/2018/11/05/1/xmedia-file-3915-panoramica-de-roma-italia.jpg,qitok=IKAt4g_v.pagespeed.ic.vR4qfmLFFo.webp)
+
 
  #### LISTA DE PAISES EUROPEOS(DES)
 
